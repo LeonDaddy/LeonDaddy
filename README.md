@@ -2,7 +2,7 @@
 - 👀 I’m interested in sleep
 - 🌱 I’m currently learning: programation
 - 💞️ I’m looking to collaborate on: i don´t know
-- 📫 How to reach me: with ny @gmail
+- 📫 How to reach me: with my @gmail
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: no have
 
